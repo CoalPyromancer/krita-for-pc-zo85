@@ -1,4 +1,4 @@
-# 
+# updated Krita for PC | Krita for Windows Script | selection-tools + HDR-editing is the best Krita for PC | Krita for Windows script, featuring selection-tools and HDR-editing.
 
 
 
